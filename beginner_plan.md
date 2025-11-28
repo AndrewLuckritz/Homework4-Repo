@@ -21,7 +21,7 @@ This page outlines a simple, beginner-friendly weekly workout plan that balances
 
 ### Tuesday – Light Cardio
 
-- Brisk walk  
+- walk  
 - Light jog  
 - Cycling  
 
